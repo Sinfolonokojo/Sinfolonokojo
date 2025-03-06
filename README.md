@@ -7,6 +7,6 @@
   - **Agile Project Management**  
   - **Google IT Support**  
 - 💞️ I’m looking to collaborate on app and software development, as well as AI projects  
-- 📫 How to reach me: angetazama20@gmail.com  
+- 📫 How to reach me: angetazama20@gmail.com  and also @sinfolonokojo
 - 😄 Pronouns: **He/Him**  
 - ⚡ Fun fact: I love acrobatics, sports, music, dance, and helping people!  
