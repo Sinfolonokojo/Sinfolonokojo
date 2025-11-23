@@ -4,7 +4,7 @@ I am a **Mechatronics Engineering graduate** applying engineering logic to softw
 
 #### 🛠️ Current Focus
 * **Industry:** Fintech (Brokers, CRMs, Trading Platforms)
-* **Role:** Web Application Developer
+* **Role:** Tech Suñpport Engineer
 * **Goal:** To join innovative projects challenging the status quo in finance and AI.
 
 #### 📚 Continuous Learning
